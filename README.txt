@@ -88,5 +88,5 @@ We welcome contributions to improve our application. Here's how you can contribu
 
 Have questions? Reach out to us:  
 
-- Email: [harshamt2005](mailto:harshamt2005@gmail.com)  
+- Email: [harsha M T](mailto:harshamt2005@gmail.com)  
 - LinkedIn: [Harsha M T](https://www.linkedin.com/in/harsha-mt-7940a4308/)  
